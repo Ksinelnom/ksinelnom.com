@@ -1,1 +1,1 @@
-# ksinelnom.com
+# ksinelnom.github.io
